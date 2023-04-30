@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ajaustinn
-- 👀 I’m interested in ...coding and programming 
+- 👀 I’m interested in ...coding, programming,AI and Hacking 
 - 🌱 I’m currently learning ...web development
 - 💞️ I’m looking to collaborate on ...heavy computer related projects
 - 📫 How to reach me ...+237676076510
